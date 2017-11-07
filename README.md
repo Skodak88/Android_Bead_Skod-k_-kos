@@ -1,0 +1,1 @@
+# Android_Bead_Skod-k_-kos
